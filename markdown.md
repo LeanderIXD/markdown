@@ -1,7 +1,8 @@
-###IRELANDS RUGGED COAST YEILDS
+### IRELANDS RUGGED COAST YEILDS
 
 Priceless Relics of the Spanish Armada
 ======================================
+
 **by ROBERT STENUIT**
 
 *Illustrations by National Geographic*
